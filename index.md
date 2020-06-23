@@ -9,3 +9,7 @@ A Nora Brave, Seeker and machine hunter of unparalleled skill, Aloy is the genet
 * Haarfarbe | Rot
 
 > Entweder du hilfst mir... oder du gehst mir aus dem Weg! (Aloy)
+
+<img src="https://i.imgur.com/C9SXuPp.jpg?1"/>
+
+get on https://i.imgur.com/C9SXuPp.jpg?1 (no licence)
